@@ -43,7 +43,7 @@
     Your confidence is key.   
 
 
-TLDR; how to navigate a potential recession:   
+### TLDR; how to navigate a potential recession:   
 
 1. Reduce costs as much as you can   
 2. Keep spirits as high as you can   
@@ -52,4 +52,15 @@ TLDR; how to navigate a potential recession:
 5. Consistency hone new skills   
 6. Update your portfolio and personal website   
 7. Meet new friends   
-    
+
+
+### Prepare for a recession by focusing on your own life and things you can control.
+Stop worrying about:
+- Politics;
+- Celebrities;
+- Other people's lives;   
+
+Start focusing on:   
+- Habits and routines;
+- Exercise;
+- Increasing your income;
