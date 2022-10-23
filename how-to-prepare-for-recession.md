@@ -29,4 +29,27 @@
 6. Make the jobs to be done framework your friend   
     Too much money can make us lazy   
     The “jobs to be done framework” will keep us honest on shipping products with high likelihood of success during a recession   
+7. Invest in yourself   
+    A true warrior relies on him/her/their self. Its the only thing that can't be taken away   
+    Sharpen your blade and it’ll gives you creative juice to ideate   
+    We created Dash product challenges for product designers to hone their skills   
+    https://dash.careers   
+8. Publish your work   
+    Step 1: update your portfolio   
+    Step 2: add you’re open to freelance work or learning about new opportunities   
+9. Keep your spirits high    
+    Don’t get swept into the bad energy of a downturn   
+    That’s the most dangerous part    
+    Your confidence is key.   
+
+
+TLDR; how to navigate a potential recession:   
+
+1. Reduce costs as much as you can   
+2. Keep spirits as high as you can   
+3. Ship products consistently    
+4. Do the $1000/month biz challenge   
+5. Consistency hone new skills   
+6. Update your portfolio and personal website   
+7. Meet new friends   
     
