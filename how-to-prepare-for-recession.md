@@ -4,10 +4,10 @@
     You’re most likely not.  
     But sometimes this is what you need for that boost of focus to increase cash flow and inject new opportunities in your back pocket.  
     This is your wake-up call.
-2. Build bridges
-    Meet 2+ new people per week for coffee
-    Ask them what they are working on
-    Project sound cool?
+2. Build bridges 
+    Meet 2+ new people per week for coffee 
+    Ask them what they are working on 
+    Project sound cool? 
     Ask them if you can help
     Take cash or equity or tokens or a mix.
 3. Launch a business that generate $1000/month in 2022
