@@ -15,18 +15,18 @@
     $1000/month is attainable   
     Do the $1000/month challenge with other friends who want to build. Will keep you accountable   
     You got this   
-4. Launch a minimum viable community (MVC)
-    Community unlocks potential
-    Being a leader of a community is incredibly valuable (and fulfilling) 
-    You can sell products, services or NFTS to them (for profit or non)
-    More on MVC with @alexisohanian on our pod - https://www.youtube.com/watch?v=_uPRruLfZoU 
-5. Buy a business
-    Always easier to buy over build
-    And during downturns, there are an abundance of deals worth buying
-    Step 1: find a business worth buying 
-    Step 2: create a fair deal for investors
-    Step 3: dial for dollars
-6. Make the jobs to be done framework your friend
-    Too much money can make us lazy
-    The “jobs to be done framework” will keep us honest on shipping products with high likelihood of success during a recession
+4. Launch a minimum viable community (MVC)   
+    Community unlocks potential   
+    Being a leader of a community is incredibly valuable (and fulfilling)    
+    You can sell products, services or NFTS to them (for profit or non)   
+    More on MVC with @alexisohanian on our pod - https://www.youtube.com/watch?v=_uPRruLfZoU    
+5. Buy a business   
+    Always easier to buy over build   
+    And during downturns, there are an abundance of deals worth buying   
+    Step 1: find a business worth buying    
+    Step 2: create a fair deal for investors   
+    Step 3: dial for dollars   
+6. Make the jobs to be done framework your friend   
+    Too much money can make us lazy   
+    The “jobs to be done framework” will keep us honest on shipping products with high likelihood of success during a recession   
     
