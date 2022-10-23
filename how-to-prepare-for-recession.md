@@ -10,11 +10,11 @@
     Project sound cool?  
     Ask them if you can help   
     Take cash or equity or tokens or a mix.   
-3. Launch a business that generate $1000/month in 2022
-    Dream ridiculously big, but ok to start small 
-    $1000/month is attainable
-    Do the $1000/month challenge with other friends who want to build. Will keep you accountable
-    You got this
+3. Launch a business that generate $1000/month in 2022   
+    Dream ridiculously big, but ok to start small    
+    $1000/month is attainable   
+    Do the $1000/month challenge with other friends who want to build. Will keep you accountable   
+    You got this   
 4. Launch a minimum viable community (MVC)
     Community unlocks potential
     Being a leader of a community is incredibly valuable (and fulfilling) 
